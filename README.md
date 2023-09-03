@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zeeyounglad
-- 👀 I’m interested in codin
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning html
 
 - 📫 How to reach me instagram @zee_young_lad
